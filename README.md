@@ -1,6 +1,6 @@
-![Spamton](/IMG_0027.png)
+![Trumpton](/IMG_0027.png)
 
-# The Spamton Quote Database
+# The Trumpton Quote Database
 
 ## Initial Encounter
 
@@ -368,6 +368,8 @@
 
 - DON'T WORRY! FOR OUR \[No Dividend Guaranttee\]
 - THIS IS \[One Investment\] YOU WILL \[Insider trade\] FOR THE REST OF YOUR LIFE!
+
+![Trumpton Grok](/IMG_0030.png)
 
 ## Spamton GROK
 
