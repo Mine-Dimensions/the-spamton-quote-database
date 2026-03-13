@@ -1,4 +1,4 @@
-![Spamton](/spamton.png)
+![Spamton](/IMG_0027.png)
 
 # The Spamton Quote Database
 
