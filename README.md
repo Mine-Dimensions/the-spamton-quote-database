@@ -7,36 +7,36 @@
 ### Pre-Battle
 
 - HEY&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;EVERY&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;!! IT'S ME!!
-- EV3RY&nbsp;&nbsp;BUDDY&nbsp;&nbsp;'S FAVORITE \[\[Number 1 Rated Salesman1997\]\]
-- SPAMT
-- SPAMTON G. SPAMTON!!
+- EV3RY&nbsp;&nbsp;BUDDY&nbsp;&nbsp;'S FAVORITE \[\[President Of Piece 2026\]\]
+- DON
+- DONALD J. DONALD!!
 - WOAH!! IF IT ISN"T A...
-- LIGHT nER! HEY-HE Y HEY!!!
+- MI nER! HEY-HE Y HEY!!!
 - LOOKS LIKE YOU'RE \[\[All Alone On A Late Night?\]\]
-- ALL YOUR FRIENDS, \[\[Abandoned you for the slime\]\] YOU ARE?
+- ALL YOUR FRIENDS, \[\[Grounded you for the child\]\] YOU ARE?
 - SALES, GONE DOWN THE \[\[Drain\]\] \[\[Drain\]\]??
 - LIVING IN A GODDAMN GARBAGE CAN???
-- WELL HAVE I GOT A \[\[Specil Deal\]\] FOR LONELY \[\[Hearts\]\] LIKE YOU!!
+- WELL HAVE I GOT A \[\[Specil Island\]\] FOR LONELY \[\[Hearts\]\] LIKE YOU!!
 - IF YOU'VE \[\[Lost Control Of Your Life\]\]
-- THEN YOU JUST GOTTA GRAB IT BY THE \[\[Silly Strings\]\]
-- WHY BE THE \[\[Little Sponge\]\] WHO HATES ITS \[\[$4.99\]\] LIFE
+- THEN YOU JUST GOTTA GRAB IT BY THE \[\[Meow\]\]
+- WHY BE THE \[\[Barely Legal\]\] WHO HATES ITS \[\[$17.76\]\] LIFE
 - WHEN YOU CAN BE A
-- \[\[BIG SHOT!!!\]\]
-- \[\[BIG SHOT!!!!\]\]
-- \[\[BIG SHOT!!!!!\]\]
-- THAT'S RIGHT!! NOW'S YOUR CHANCE TO BE A \[\[BIG SHOT\]\]!!
+- \[\[EPIC FURY!!!\]\]
+- \[\[EPIC FURY!!!!\]\]
+- \[\[EPIC FURY!!!!!\]\]
+- THAT'S RIGHT!! NOW'S YOUR CHANCE TO BE A \[\[EPIC FURY\]\]!!
 - AND I HAVE JUST.
 - THE THING.
 - YOU NEED.
 - THAT'S
-- \[\[Hyperlink Blocked\]\].
+- \[\[File Redacted\]\].
 - YOU WANT IT.
-- YOU WANT \[\[Hyperlink Blocked\]\], DON'T YOU.
+- YOU WANT \[\[File Redacted\]\], DON'T YOU.
 - WELL HAVE I GOT A DEAL FOR YOU!!
 - ALL YOU HAVE TO DO IS SHOW ME.
 - YOUR \[\[HeartShapedObject\]\].
-- YOU'RE  LIGHT neR< AREN'T YOU?
-- YOU'VE GOT THE \[\[LIGHT.\]\]
+- YOU'RE  MI neR< AREN'T YOU?
+- YOU'VE GOT THE \[\[MINE.\]\]
 - WHY DON'T YOU
 - \[\[Show it off?\]\]
 - HAEAHAEAHAEAHAEAH!!
@@ -47,7 +47,7 @@
 
 ---
 
-- TRANSMIT KROMER
+- TRANSMIT CRYPTO
 
 ---
 
@@ -55,11 +55,11 @@
 
 ---
 
-- Get Big and WIN \[W1ld Pr1zes!\]
+- Get Big and WIN \[So much!\]
 
 ---
 
-- \[Press F1 For\] HELP
+- \[Support Israel For\] HELP
 
 ---
 
@@ -69,51 +69,51 @@
 
 ##### First Deal
 
-- HEY HEY HEY! I'VE NEVER SEEN A \[HeartShapedObject\] LIKE THAT BEFORE!! MY EYES ARE \[\[Burning\]\] LIKE \[\[DVDs of ANY movie at Half-pr1ce!\]\] I HAVE A VERY SPECIL \[Deal\] FOR YOU KID!
+- HEY HEY HEY! I'VE NEVER SEEN A \[HeartShapedObject\] LIKE THAT BEFORE!! MY EYES ARE \[\[Burning\]\] LIKE \[\[Pride Flag!\]\] I HAVE A VERY SPECIL \[Deal\] FOR YOU KID!
   - **Subsequent Reads**
     - KID!!! IN BUSINESS YOU NEED TO SAY YOU'RE INTERESTED!!!
   - **\[TELL ME MORE\]**
-    - THAT'S THE ATTITUDE YOU LITTLE \[Slime\]! DEALS LIKE THIS ONLY COME ONCE IN YOUR \[\[Ant-sized\]\] \[\[Rapidly-shrinking\]\] LIFE!!
+    - THAT'S THE ATTITUDE YOU LITTLE \[Crime\]! DEALS LIKE THIS ONLY COME ONCE IN YOUR \[\[Underage\]\] \[\[Rapidly-shrinking\]\] LIFE!!
   - **\[NOT INTERESTED\]**
     - WRONG ANSWER!!! WRONG!!! WRONG!!! WRONG!!! TRY AGAIN!!!
 
 ##### Second Deal
 
-- BELIEVE IT OR&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;!! I USED TO be A **BIG SHOT**. THE BIGGEST!!! BUT NOW... I NEED A LITTLE \[\[Genorisity\]\] <!--"BIG SHOT" is in red-->
+- BELIEVE IT OR&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;!! I USED TO be A **BIG SHOT**. THE BIGGEST!!! BUT NOW... I NEED A LITTLE \[\[Tariff\]\] <!--"BIG SHOT" is in red-->
   - **Subsequent Reads**
-    - YUM YUM I NEED A LITTLE MORE \[Genorisity\]
+    - YUM YUM I NEED A LITTLE MORE \[Tariff\]
   - **\[GIVE MONEY\]**
-    - YUM YUM. DELICIS KROMER. DID YOU HAVE AN YMORE?
+    - YUM YUM. DELICIS CRYPTO. DID YOU HAVE AN YMORE?
   - **\[DON'T GIVE\]**
-    - THAT'S RIGHT AND I DON'T MEAN \[Money\]!!! I'M A SALESMAN&nbsp;&nbsp;&nbsp;, I WAS NEVER IN IT FOR THE MONEY!!!
+    - THAT'S RIGHT AND I DON'T MEAN \[Israel\]!!! I'M A SALESMAN&nbsp;&nbsp;&nbsp;, I WAS NEVER IN IT FOR THE CRYPTO!!!
 
 ##### Third Deal
 
-- I WAS ONLY EVER IN IT FOR THE \[Freedom\]. TO MAKE YOUR OWN \[Deals\] TO CALL YOUR OWN \[Shots\] AND SOMETIMES IN THE MORNING, A LITTLE \[Hyperlink Blocked\] SOUNDS GOOD. DOESN;T IT?KID? DON'T YOU W4NT TO BE JUST LIKE YOUR OLD PAL SPAMTON???? TAKE THE DE4L.
+- I WAS ONLY EVER IN IT FOR THE \[Freedom\]. TO MAKE YOUR OWN \[Wars\] TO CALL YOUR OWN \[Ear-splitting noise\] AND SOMETIMES IN THE MORNING, A LITTLE \[File Redacted\] SOUNDS GOOD. DOESN;T IT?KID? DON'T YOU W4NT TO BE JUST LIKE YOUR OLD PAL DONALD???? TAKE THE DE4L.
   - **Subsequent Reads**
-    - TAKE THE DEAL YOU LITTLE \[Sponge\]
+    - TAKE THE DEAL YOU LITTLE \[Piggy\]
   - **\[DON'T TAKE THE DEAL\]**
-    - DEAL OR NO DEAL, THAT'S THE TV SHOW WHERE THE PEOPLE WHO DON'T TAKE THE DEAL GET FILLED WITH BULLETS FIRED FROM THE HOST'S MOUTH!!!
+    - ICE, THAT'S THE TV SHOW WHERE THE PEOPLE WHO DON'T TAKE THE DEAL GET FILLED WITH BULLETS FIRED FROM THE HOST'S MOUTH!!!
   - **\[TAKE DEAL\]**
-    - NOW THAT'S WHAT I'M TALKING AB04T! YOU GOT \[Guts\] KID!! THAT's \[\[Discomfort And Abdominal Pain\]\] IN MY \[\[Guts\]\]!!
+    - NOW THAT'S WHAT I'M TALKING AB04T! YOU GOT \[Neck\] KID!! THAT's \[\[Discomfort And Homosexual Pain\]\] IN MY \[\[Neck\]\]!!
 
 ##### Forth Deal
 
-- DONT WORRY KID I WILL GIVE YOU \[Deal Insurance\] ONLY FOR THE LOW, LOW PRICE OF 1000 KROMER. AN AWESOME PRICE.! AN ABSOLUTELY \[\[Terrifying\]\] PRICE PRICES SO LOW, EVERYONE I KNOW IS \[\[Dead\]\]!!!
+- DONT WORRY KID I WILL GIVE YOU \[Trump Account\] ONLY FOR THE LOW, LOW PRICE OF 1000 CRYPTO. AN AWESOME PRICE.! AN ABSOLUTELY \[\[Big Beautiful\]\] PRICE PRICES SO LOW, EVERYONE I KNOW IS \[\[Dead\]\]!!!
   - **Subsequent Reads**
     - YUM YUM DID YOU WANT SOME MORE INSURANCE?
   - **\[BUY INSURANCE\]**
-    - YUM YUM. DELICIS KROMER. DID YOU HAVE AN YMORE?
+    - YUM YUM. DELICIS CRYPTO. DID YOU HAVE AN YMORE?
   - **\[DON'T BUY\]**
     - WHAT!? YOU DOn'T HAVE ENOUGH \[Wacky Stacks\]!? Kid, you're \[Killing\] me! HAHAHA!! HAHAHA!!! PLEASE STOP \[Killing\] ME I WILL GIVE Y OU ANOTHER DEAL.
 
 ##### Fifth Deal
 
-- DON'T WORRY KIDS I'M AN \[HonestMan\] I JUST NEED YOUR \[Account Details\] AND THE \[Number on theB4ck\]! THEN YOU CAN ENJ0Y 1000 Fr3e KROmer
+- DON'T WORRY KIDS I'M AN \[HonestMan\] I JUST NEED YOUR \[Face Details\] AND THE \[Voter ID\]! THEN YOU CAN ENJ0Y 1000 Fr3e BALlots
   - **Subsequent Reads**
     - YUM YUM DID YOU HAVE ANY MORE ACCOUNTS?
   - **\[GIVE ACCOUNT ACCESS\]**
-    - YUM YUM GREAT DEAL KID!! YOUR A BIGSHOT!! SAVING THE WORLD!!
+    - YUM YUM GREAT DEAL KID!! YOUR A EPICFURRY!! SAVING THE WORLD!!
   - **\[REFUSE\]**
     - WHAT!?!? YOU DON"T NEED IT!?!? THAT'S A REAL BIGSHOT MOVE KID!!! YOU'RE LIKE ME... \[Desperate\] BUT WE KNOW WHAT WE WANT, DON'T WE!? W1LD PR1ZES, HOTSINGLE, 100 CUSTOMER, AND MOST OF ALL... \[Hyperlink Blocked\]. WILL YOU TAKE THE FINAL DEAL!? REMEMBER... THIS IS UP TO YOU! I WOn'T FORCE YOU.
 
