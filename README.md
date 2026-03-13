@@ -369,7 +369,7 @@
 - DON'T WORRY! FOR OUR \[No Dividend Guaranttee\]
 - THIS IS \[One Investment\] YOU WILL \[Insider trade\] FOR THE REST OF YOUR LIFE!
 
-## Spamton NEO
+## Spamton GROK
 
 ### Normal
 
@@ -425,22 +425,22 @@
 #### Battle
 
 - KRIS! ISN'T THIS \[Mecha\] JUST \[Hitler\]LY!?
-- 3X THE \[Fire\]POWER. 2X THE \[Water\]POWER. AND BEST OF ALL, FLYING \[Heads\]!
+- 3X THE \[Ask\]POWER. 2X THE \[Imagine\]POWER. AND BEST OF ALL, FLYING \[Bomber Planes\]!
 
 ---
 
-- WE'LL TURN THOSE \[Schmoes\] AND \[Daves\] INTO \[Rosen Graves\]
-- THOSE \[Cathode Screens\] INTO \[Cathode Screams\]
+- WE'LL TURN THOSE \[Kids\] WITH \[Smiles\] INTO \[Pedophiles\]
+- THOSE \[DNA\] INTO \[USA\]
 
 ---
 
-- KRIS, DON'T YOU WANNA BE \[Part\] OF MY BEAUTIFUL \[Heart\]?!
-- OR... DID YOU NEED A LITTLE \[Specil Tour\]?
+- KRIS, DON'T YOU WANNA BE \[Part\] OF MY BEAUTIFUL \[Sharts\]?!
+- OR... DID YOU NEED A LITTLE \[Press Conference\]?
 
 ---
 
-- ALL YOU GOTTA DO IS \[Big.\]
-- THEN WE'LL BE THE ONES MAKING THE \[Calls\], KRIS!
+- ALL YOU GOTTA DO IS \[Epic.\]
+- THEN WE'LL BE THE ONES MAKING THE \[Wars\], KRIS!
 
 ---
 
@@ -448,12 +448,12 @@
 
 ---
 
-- IT'S CALLING, KRIS... MY \[Heart\]... MY \[Hands\]...
+- IT'S FAILING, KRIS... MY \[Heart\]... MY \[Hands\]...
 
 ---
 
 - KRIS! CAN YOU REALLY LOOK IN MY \[Eyes\] AND SAY NO!?
-- LOOK IN MY \[Eyes\] LOOK IN MY \[Nose\] LOOK IN MY \[Mouth\]
+- LOOK IN MY \[Hair\] LOOK IN MY \[Tan\] LOOK IN MY \[Lips\]
 
 ---
 
@@ -461,34 +461,34 @@
 
 ---
 
-- \[Friends\]!? KRIS!? WHAT ARE YOU TALKING ABOUT!?
-- YOU DON'T NEED \[Friends\]!!
-- I CAN MAKE MY HANDS INTO PHONES!!!
+- \[Laws\]!? KRIS!? WHAT ARE YOU TALKING ABOUT!?
+- YOU DON'T NEED \[Laws\]!!
+- I CAN MAKE MY VOTERS INTO CULTISTS!!!
 
 ---
 
 - KRIS, I'LL EVEN GIVE YOU A \[Free Value\]
-- \[Die Now\] AND I'LL THROW IN \[50\] \[Bullets\] FOR FREE!
+- \[Die Now\] AND I'LL THROW IN \[50\] \[Nukes\] FOR FREE!
 
 ---
 
-- DON'T YOU WANNA HELP YOUR OLD PAL SPAMTON?
-- KRIS!! THINK! WHAT ARE MY \[Eggs\] GOING TO DO!?
+- DON'T YOU WANNA HELP YOUR OLD PAL DONALD?
+- KRIS!! THINK! WHAT ARE MY \[Files\] GOING TO DO!?
 
 ---
 
 - KRIS. IF YOU GIVE ME THAT \[Soul\] I WILL GIVE YOU EVERYTHING I HAVE.
-- I WILL GIVE YOU \[3 Easy Payments of $9.99!\]
+- I WILL GIVE YOU \[$40 trillion of national debt!\]
 
 ---
 
 - BUT KRIS, IF YOU REFUSE. THAT'S YOUR CHOICE. I CAN'T FORCE YOU.
-- I CAN ONLY \[Kill\] YOU \[50-percent faster than similar products\] OR \[No Money Back!\]
+- I CAN ONLY \[Bomb\] YOU \[50-percent faster than Putin\] OR \['Cause you'd be in jail!\]
 
 ---
 
 - KRIS!!! TAKE THE DEAL!!! TAKE IT!!!
-- DO YOU WANNA BE A \[Heart\] ON A \[Chain\] YOUR WHOLE LIFE!?
+- DO YOU WANNA BE A \[Lib\] ON A \[Food Stamps\] YOUR WHOLE LIFE!?
 
 ---
 
@@ -499,34 +499,34 @@
 ---
 
 - KRIS... I WON'T FORCE YOU. I CAN'T. I CAN'T FORCE YOU.
-- BUT JUST LOOK, KRIS. LOOK AT THE \[Power of NEO\] AND ASK YOURSELF...
+- BUT JUST LOOK, KRIS. LOOK AT THE \[Beautiful Clean Coal\] AND ASK YOURSELF...
 - WELL, DON'T YOU?
-- DON'T YOU WANNA BE A \[Big Shot\]!?
+- DON'T YOU WANNA BE A \[Epic Fury\]!?
 
 ---
 
-- \[Clown\]!? NO!!! I FEEL SICK!!!
+- \[Zohran\]!? NO!!! I FEEL SICK!!!
 
 ---
 
-- \[The Smooth Taste Of\] NEO
+- \[The Smooth Taste Of\] USA
 
 ---
 
-- CAN A \[Little Sponge\] DO THIS?
+- CAN A \[Somalian Pirate\] DO THIS?
 - GO \[Ga-Ga\] AND \[Die\]
 
 ---
 
-- DON'T YOU WANNA BE A \[Big Shot\]!?
+- DON'T YOU WANNA BE A \[Epic Fury\]!?
 
 ---
 
-- \[BreaKing\] and \[CracKing\]
+- \[Eating\] and \[Eating\]
 
 ---
 
-- THE \[@$@!\] TASTE OF SPAMTON
+- THE \[@$@!\] TASTE OF DONALD
 
 ##### Win
 
@@ -536,85 +536,84 @@
 - MY... MY \[Wires\]... THEY'RE ALMOST \[Gone\]!?
 - KRIS... YOU... YOU'RE \[Gifting\] ME MY \[Freedom\]?!
 - KRIS... AFTER EVERYTHING I DID TO YOU...!?
-- AFTER ALL THE \[Unforgettable D3als\] \[Free KROMER\] I GAVE YOU
+- AFTER ALL THE \[Undodgeable Draft\] \[Free CRYPTO\] I GAVE YOU
 - YOU'RE FINALLY REPAYING MY \[Genorisity\]!?
 - KRIS!!! I UNDERSTAND NOW!! THE GREATEST DEAL OF ALL!!!
 - \[Friendship\]!!!
-- KRIS!!! MY DAYS AS A \[Long-Nosed Doll\] ARE OVER!!!
-- CUT THAT \[Wire\] AND MAKE ME A \[Real Boy\]!!
-- ARE YOU WATCHING, \[Heaven\]!? IT'S TIME FOR SPAMTON'S \[Comeback Special\]!
+- KRIS!!! MY DAYS AS A \[Long-Nosed Asset\] ARE OVER!!!
+- CUT THAT \[Wire\] AND MAKE ME A \[Russian Puppet\]!!
+- ARE YOU WATCHING, \[Israel\]!? IT'S TIME FOR DONALD'S \[Third Term\]!
 - AND THIS TIME... I LIVE FOR MYSELF!!!
-- NO... MYSELF AND MY \[Friend(s)\]!!!
-- HERE I GO!!!! WATCH ME FLY, \[MAMA\]!!!!
+- NO... MYSELF AND MY \[Voter(s)\]!!!
+- HERE I GO!!!! WATCH ME FLY, \[PUTIN\]!!!!
 
 ###### Kill
 
 - WAIT!! \[$!?!\] THE PRESSES!
-- HAHAHA... KRIS!!! YOU THINK DEPLETING MY \[8000 Life Points\]
-- MEANS YOU'VE WON \[A Free Meal\] TO \[Winning\]?!
+- HAHAHA... KRIS!!! YOU THINK DEPLETING MY \[38000 Mentions\]
+- MEANS YOU'VE WON \[Affordable Care\] TO \[We're so tired of winning\]?!
 - NO!!! NO!!! NE-O!!
 - KRIS!! YOUR \[Deal\] HAS FAILED!! \[NEO\] NEVER LOSES!!
-- THIS IS \[Victory Smoke\]!! IT MEANS IT'S TIME FOR MY \[Second Form\]!
-- ARE YOU READY KRIS!? FOR MY \[Next Trick\]!
-- I WILL FILL MY \[Body\] WITH \[Electricaty\] AND BECOME SPAMTON \[EX\]!
+- THIS IS \[Boo-urns\]!! IT MEANS IT'S TIME FOR MY \[Third Term\]!
+- ARE YOU READY KRIS!? FOR MY \[V4.20\]!
+- I WILL FILL MY \[Body\] WITH \[Autonomy\] AND BECOME DONALD \[OPTIMUS\]!
 - ARE YOU READY \[Kids\]!?
-- \[Turn up the JUICE!\] \[Turn up the JUICE!\]
-- \[Make Sure You Don't Get It On Your Shoese!\]
-- ARE YOU GETTING ALL THIS \[Mike\]!? I'M FINALLY
-- I'M FINALLY GONNA BE A BIG SHOT!!!
-- HERE I GO!!!! WATCH ME FLY, \[MAMA\]!!!!
+- \[@grok is this true\] \[@grok is this true\]
+- \[Ask Grok is only available to Premium and Premium+ subscribers only.\]
+- ARE YOU GETTING ALL THIS \[Bubba\]!? I'M FINALLY
+- I'M FINALLY GONNA BE A EPIC FURY!!!
+- HERE I GO!!!! WATCH ME FLY, \[Elon\]!!!!
 
 #### Post-Battle
 
-- It seems after all I couldn't be anything more than a simple puppet.
-- But you three... You're strong.
-- With a power like that...
-- Maybe you three can break your own strings.
-- Let me become your strength.
+- Let me also express my tremendous appreciation for Susie and Kris.
+- The job you did. Susie, come Susie, come here, come here, Susie. Kris, come here Kris.
+- Susie likes to stay sort of in the back, let me tell you. The rude buster, we call her the rude buster.
+- Kris come here, Kris, Susie likes to stay in the background. She's not in the background.
 
 ---
 
 - ... Kris...? Kris!? KRIS!?!?!?
-- YOU FILLED YOUR \[Inventorium\] WITH \[Half-Pr1ce Sallamy\] JUST TO KEEP ME OUT!?
-- WHAT! THE! \[Fifty Percent Off\]!? <!--The game pauses on "F" for a significant duration-->
+- YOU FILLED YOUR \[Papers, please\] WITH \[Proof of citizenship\] JUST TO KEEP ME OUT!?
+- WHAT! THE! \[Fox News\]!? <!--The game pauses on "F" for a significant duration-->
 - YOU CAN CARRY LIKE 48 ITEMS!!!
-- \[Why\] DID YOU DO THIS!? WHY!? \[Y\]!? \[Yellow\]!? \[Gamma\]!?
-- NOT \[Cool\] KRIS! I'LL BE IN MY \[Trailer\]!
+- \[Why\] DID YOU DO THIS!? WHY!? \[Y\]!? \[YMCA\]!? \[Genders\]!?
+- NOT \[Cool\] KRIS! I'LL BE IN MY \[Golf Club\]!
 
 ### Snowgrave
 
 #### Pre-Battle
 
 - ***\[Narration\]*** (It was as if your very SOUL was glowing...)
-- ***\[Spamton\]*** NOT!!!
+- ***\[Trumpton\]*** NOT!!!
 - LET ME SAY
 - LET ME SAY \[Thanks \]
-- THANKS TO YOUR \[Total Jackass stunts\] I HAVE \[Becomed\] NEO.
-- AND NOW IT'S MY \[Mansion\]! MY \[City\] MY \[World\]!
-- SO WHY ARE YOU \[Stealing\] THE \[Fountain\]!?
-- TO \[$!$!\] ME OVER RIGHT AT THE \[Good part\]!? WHAT ARE YOU, A \[Gameshow Host\]!?
+- THANKS TO YOUR \[Total liberal stunts\] I HAVE \[Becomed\] GROK.
+- AND NOW IT'S MY \[White House\]! MY \[Country\] MY \[Greenland\]!
+- SO WHY ARE YOU \[Stealing\] THE \[Election\]!?
+- TO \[$!$!\] ME OVER RIGHT AT THE \[Good part\]!? WHAT ARE YOU, A \[Constitution\]!?
 - AH, KID, FORGET IT. I'M AN \[HonestMan\].
 - I'LL LET YOU \[Pay\] YOUR WAY OUT OF THIS ONE!!
 - \[Pay\]...
-- WITH YOUR \[Rapidly-Shrinking\] LIFE!!!
+- WITH YOUR \[Dropping Approval\] LIFE!!!
 
 #### Battle
 
-- I REMEMBER WHEN YOU WERE JUST A LOST \[Little Sponge\].
+- I REMEMBER WHEN YOU WERE JUST A LOST \[Tylenol Baby\].
 - SLEEPING AT THE BOTTOM OF A DUMPSTER!
 
 ---
 
 - I GAVE YOU EVERYTHING I HAD! MY LIFE ADVICE!
-- I TOLD YOU \[4 Left\] AND ASKED YOU \[Buy\] OR \[Don't Buy\]!
+- I TOLD YOU \[4 Left\] AND ASKED YOU \[Deport\] OR \[Don't Deport\]!
 
 ---
 
-- I GAVE YOU MY \[Commemorative Ring\] FOR THE PRICE OF \[My Favorite Year\]!
+- I GAVE YOU MY \[Specil Vacuum\] FOR THE PRICE OF \[My Favorite Year\]!
 
 ---
 
-- AND THIS IS HOW YOU \[Repay\] ME!? TREATING ME LIKE \[DLC\]!?
+- AND THIS IS HOW YOU \[Repay\] ME!? TREATING ME LIKE \[Sugar Daddy\]!?
 
 ---
 
@@ -622,12 +621,12 @@
 
 ---
 
-- NO, I GET IT! IT'S YOU AND THAT \[Hochi Mama\]!
+- NO, I GET IT! IT'S YOU AND THAT \[ICE Barbie\]!
 - YOU'VE BEEN \[Making\], HAVEN'T YOU!
 
 ---
 
-- YOU'VE BEEN MAKING \[Hyperlink Blocked\]!
+- YOU'VE BEEN MAKING \[File Redacted\]!
 
 ---
 
@@ -636,30 +635,30 @@
 ---
 
 - I WAS TOO \[Trusting\] TOO \[Honest\].
-- I'VE ALWAYS BEEN A MAN OF THE \[PIPIS\]. A REAL \[PIPIS\] PERSON!
+- I'VE ALWAYS BEEN A MAN OF THE \[Germans\]. A REAL \[Germans\] PERSON!
 
 ---
 
-- I SHOULD HAVE KNOWN YOU WOULD HAVE USED MY \[Ring\] FOR \[Evil\]...
+- I SHOULD HAVE KNOWN YOU WOULD HAVE USED MY \['Cuum\] FOR \[Evil\]...
 - OH, \[Right\]. THAT'S WHY I SOLD IT TO YOU
 
 ---
 
-- YOU THINK MAKING \[Frozen Chicken\] WITH YOUR \[Side Chick\]
-- IS GONNA LET YOU DRINK UP THAT \[Sweet, Sweet\] \[Freedom Sauce\]?
+- YOU THINK MAKING \[Asian Cuisine\] WITH YOUR \[Lipchick\]
+- IS GONNA LET YOU DRINK UP THAT \[Sweet, Sweet\] \[Ethnostate\]?
 
 ---
 
 - WELL, YOU'RE \[$!$!\] RIGHT! BUT DON'T BLAME ME
-- WHEN YOU'RE \[Crying\] IN A \[Broken Home\] WISHING YOU LET YOUR OLD PAL SPAMTON \[Kill You\]
+- WHEN YOU'RE \[Crying\] IN A \[Unclean Home\] WISHING YOU LET YOUR OLD PAL DONALD \[Kill You\]
 
 ---
 
 - MY ESTEEM CUSTOMER I SEE YOU ARE ATTEMPTING TO DEPLETE MY HP!
-- I'LL ADMIT YOU'VE GOT SOME \[Guts\] KID!
-- BUT IN A \[1 for 1\] BATTLE, NEO NEVER LOSES!!!
-- IT'S TIME FOR A LITTLE \[Bluelight Specil\].
-- DIDN'T YOU KNOW \[Neo\] IS FAMOUS FOR ITS HIGH DEFENSE!?
+- I'LL ADMIT YOU'VE GOT SOME \[Neck\] KID!
+- BUT IN A \[Social Justice\] BATTLE, GROK NEVER LOSES!!!
+- IT'S TIME FOR A LITTLE \[MechaHitler\].
+- DIDN'T YOU KNOW \[Grok\] IS FAMOUS FOR ITS HIGH BIGOTRY!?
 - NOW... ENJ0Y THE FIR3WORKS, KID!!!
 
 ---
@@ -669,30 +668,30 @@
 ---
 
 - WHAT!? YOU'RE CALLING FRIENDS!?
-- YOU THINK YOU CAN BEAT ME WITH YOUR FRIENDS' \[Magic\]!?
+- YOU THINK YOU CAN BEAT ME WITH YOUR FRIENDS' \[Wokeness\]!?
 - GO AHEAD, \[Kid\]...
 - CALL ALL YOU WANT!
 - NO ONE WILL EVER PICK UP
 
 ---
 
-- GO AHEAD AND \[Scream\] INTO THE \[Receiver\].
+- GO AHEAD AND \[Scream\] INTO THE \[Ocean\].
 - THE \[Voice\] RUNS OUT EVENTUALLY.
 - YOUR \[Voice\] THEIR \[Voice\].
 - UNTIL YOU REALIZE YOU ARE ALL ALONE
 
 ---
 
-- THERE WILL BE NO MORE \[Miracles\] NO MORE \[Magic\].
+- THERE WILL BE NO MORE \[Elections\] NO MORE \[Congress\].
 - YOU LOST IT WHEN YOU TRIED TO SEE TOO FAR....
 - ... YOU LOST IT...
 
 ---
 
 - YOU MAKE ME \[Sick\]!
-- MUTTERING YOUR \[Lost Friends\] NAMES AT THE BOTTOM OF A \[Dumpster\]!
+- MUTTERING YOUR \[Lost Friends\] NAMES AT THE BOTTOM OF A \[Detention Camp\]!
 - NO ONE'S GONNA HELP YOU!!!
-- GET THAT THROUGH YOUR \[Beautiful Head\], YOU LITTLE \[Worm\]!
+- GET THAT THROUGH YOUR \[Beautiful Head\], YOU LITTLE \[Libtard\]!
 
 ---
 
@@ -700,34 +699,34 @@
 - YOU'RE STILL TRYING TO \[Use\] HER!?
 - HA HA HA HA!!!
 - YOU THINK SHE CAN \[Hear\] YOU NOW, MUTTERING HER NAME!?
-- WHAT'S SHE GONNA DO, MAKE ME AN \[Ice Cream\]!?
-- HEY, IS IT COLD IN HERE OR IS IT JUST ME?
+- WHAT'S SHE GONNA DO, MAKE ME AN \[Charlie Kirk\]!?
+- HEY, IS IT COUNTING GANG VIOLENCE IN HERE OR IS IT JUST ME?
 
 ### Flavor Text
 
 - **Encounter**
-  - It's time to be a BIG SHOT!
+  - It's time to unleash an EPIC FURY!
 - **\[Check\]**
   <!--"PAIN" is in red-->
-  - YOU WON'T FIND HIGHER ATTACK AND DEFENSE ANYWHERE ELSE!!! THE SMOOTH TASTE OF NEO "WAKE UP AND TASTE THE PAIN".
+  - YOU WON'T FIND HIGHER ATTACK AND ~~DEFENSE~~ WAR ANYWHERE ELSE!!! THE SMOOTH TASTE OF GROK "WOKE GONE, TASTE THE PAIN".
 - **\[Check\] Again**
   - He is his own worst invention.
 - **Neutral**
-  - Hold and release \[Z\] to fire a BIG SHOT!
-  - Spamton turns to the audience and laughs.
-  - Spamton appeals to the audience with a festive jig!
-  - Spamton begs to the audience, Spamton prays to the audience.
-  - There is no audience.
-  - The stage lights are shattered.
-  - The air crackles with freedom.
-  - It pulls the strings and makes them ring.
-  - Spamton begs the audience to stop taking the furniture out of his room.
-  - Smells like rotten glass.
-  - Spamton feels the sweet breeze as he takes a ride around town.
+  - Hold and release \[Z\] to unleash an Epic Fury!
+  - Trumpton turns to the Epstein Files and laughs.
+  - Trumpton appeals to the Epstein Files with a choppy arm movement!
+  - Trumpton begs to the Epstein Files, Spamton prays to the Epstein Files.
+  - There is no Epstein Files.
+  - The lights are turned off.
+  - The air crackles with Zionist propaganda.
+  - It goes too far and starts a war.
+  - Trumpton begs the reporters to stop talking about the Epstein Files.
+  - Smells like makeup and poop.
+  - Trumpton feels the winning as he doesn't know what to do about it.
 - **Snowgrave, Final Phase**
-  - Spamton Neo's ATTACK dropped! Spamton Neo's DEFENSE rose greatly!
-  - Spamton NEO recovered HP with Pipis!
-  - Spamton NEO's DEFENSE is towering.
+  - Trumpton Grok's ATTACK dropped! Trumpton Grok's ~~DEFENSE~~ WAR rose greatly!
+  - Trumpton GROK recovered HP with Pipis!
+  - Trumpton GROK's ~~DEFENSE~~ WAR is towering.
 - **Call For Help**
   - Kris called for help... ... but nobody came.
-  - You whispered Noelle's name...
+  - You whispered Noem's name...
