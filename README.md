@@ -93,7 +93,7 @@
   - **Subsequent Reads**
     - TAKE THE DEAL YOU LITTLE \[Piggy\]
   - **\[DON'T TAKE THE DEAL\]**
-    - ICE, THAT'S THE TV SHOW WHERE THE PEOPLE WHO DON'T TAKE THE DEAL GET FILLED WITH BULLETS FIRED FROM THE HOST'S MOUTH!!!
+    - THE CHARLIE KIRK SHOW, THAT'S THE TV SHOW WHERE THE PEOPLE WHO DON'T TAKE THE DEAL GET FILLED WITH BULLETS FIRED INTO THE HOST'S MOUTH!!!
   - **\[TAKE DEAL\]**
     - NOW THAT'S WHAT I'M TALKING AB04T! YOU GOT \[Neck\] KID!! THAT's \[\[Discomfort And Homosexual Pain\]\] IN MY \[\[Neck\]\]!!
 
@@ -105,7 +105,7 @@
   - **\[BUY INSURANCE\]**
     - YUM YUM. DELICIS CRYPTO. DID YOU HAVE AN YMORE?
   - **\[DON'T BUY\]**
-    - WHAT!? YOU DOn'T HAVE ENOUGH \[Wacky Stacks\]!? Kid, you're \[Killing\] me! HAHAHA!! HAHAHA!!! PLEASE STOP \[Killing\] ME I WILL GIVE Y OU ANOTHER DEAL.
+    - WHAT!? YOU DOn'T HAVE ENOUGH \[Big Macs\]!? Kid, you're \[Bruising\] me! HAHAHA!! HAHAHA!!! PLEASE STOP \[Bruising\] ME I WILL GIVE Y OU ANOTHER DEAL.
 
 ##### Fifth Deal
 
@@ -115,7 +115,7 @@
   - **\[GIVE ACCOUNT ACCESS\]**
     - YUM YUM GREAT DEAL KID!! YOUR A EPICFURRY!! SAVING THE WORLD!!
   - **\[REFUSE\]**
-    - WHAT!?!? YOU DON"T NEED IT!?!? THAT'S A REAL BIGSHOT MOVE KID!!! YOU'RE LIKE ME... \[Desperate\] BUT WE KNOW WHAT WE WANT, DON'T WE!? W1LD PR1ZES, HOTSINGLE, 100 CUSTOMER, AND MOST OF ALL... \[Hyperlink Blocked\]. WILL YOU TAKE THE FINAL DEAL!? REMEMBER... THIS IS UP TO YOU! I WOn'T FORCE YOU.
+    - WHAT!?!? YOU DON"T NEED IT!?!? THAT'S A REAL EPICFURRY MOVE KID!!! YOU'RE LIKE ME... \[Desperate\] BUT WE KNOW WHAT WE WANT, DON'T WE!? GREENLAND, HOTSINGLE, 100 APPROVAL, AND MOST OF ALL... \[File Redacted\]. WILL YOU TAKE THE FINAL DEAL!? REMEMBER... THIS IS UP TO YOU! I WOn'T FORCE YOU.
 
 ##### Final Deal
 
@@ -129,63 +129,63 @@
 ##### Spare
 
 - NOW ON TO THE NEXT STEP...
-- I'LL BE WAITING AT MY \[\[Home-made Storefront Site\]\]
+- I'LL BE WAITING AT MY \[\[Mar-a-Lago\]\]
 - IN THE \[\[Trash Area Closed For Repairs.\]\]
 - COME... ALONE.
 - AND DON'T... FORGET!
-- TO \[\[Like And Subscribe\]\] FOR MORE \[\[Hyperlink Blocked.\]\]
+- TO \[\[Transparency Act\]\] FOR MORE \[\[File Redacted.\]\]
 - HAEAHAEAHAEAHAEAH!!
 
 ##### Kill
 
-- HEY!!! DIDN'T YOU EVER HEAR THE PHRASE, \[Make Money, Not War\]!
-- HOW'S AN INNOCENT GUY LIKE ME SUPPOSED TO \[Rip People Off\]
-- WHEN KIDS LIKE YOU ARE \[Beating People Up\],
-- \[Spitting\] IN THEIR EYES, THROWING SAND IN THEIR \[Face\],
-- \[Stomping\] ON THEIR TOES, YANKING THEIR \[Noses\],
+- HEY!!! DIDN'T YOU EVER HEAR THE PHRASE, \[Make Special Military Operation, Not War\]!
+- HOW'S AN INNOCENT GUY LIKE ME SUPPOSED TO \[**** People Off\]
+- WHEN KIDS LIKE YOU ARE \[Telling the world\],
+- \[Resting\] THEIR EYES, THROWING SAND IN THEIR \[Islands\],
+- \[Musking\] ON THEIR TOES, YANKING THEIR \[Hands\],
 - AND NOT EVEN GIVING THEM A SINGLE CENT FOR IT!?
 - YOU SHOULD HAVE DONE ALL THAT EARLIER!
-- AND BEEN THE FIRST TO OWN MY \[Commemorative Ring\]
+- AND BEEN THE FIRST TO OWN MY \[Nobel Prize\]
 - TOO BAD! SEE YOU KID!
 
 ---
 
-- HEY!!! DIDN'T YOU EVER HEAR THE PHRASE, \[Make Money, Not War\]!
-- HOW'S AN INNOCENT GUY LIKE ME SUPPOSED TO \[Rip People Off\]
-- WHEN KIDS LIKE YOU ARE \[Beating People Up\],
-- \[Spitting\] IN THEIR EYES, THROWING SAND IN THEIR \[Face\],
-- \[Stomping\] ON THEIR TOES, YANKING THEIR \[Noses\],
+- HEY!!! DIDN'T YOU EVER HEAR THE PHRASE, \[Make Special Military Operation, Not War\]!
+- HOW'S AN INNOCENT GUY LIKE ME SUPPOSED TO \[**** People Off\]
+- WHEN KIDS LIKE YOU ARE \[Telling the world\],
+- \[Resting\] THEIR EYES, THROWING SAND IN THEIR \[Islands\],
+- \[Musking\] ON THEIR TOES, YANKING THEIR \[Hands\],
 - AND NOT EVEN GIVING THEM A SINGLE CENT FOR IT!?
 - IT DOESN'T MEAN YOU CAN BEAT ME UP,
-- JUST BECAUSE YOU BOUGHT MY \[Commemorative Ring\]!
+- JUST BECAUSE YOU BOUGHT MY \[Nobel Prize\]!
 - AT LEAST BUY \[2\]!
 - TOO BAD! SEE YOU KID!
 
 ### Flavor Text
 
 - **Encounter**
-  - DON'T YOU WANNA BE A BIG SHOT?
+  - DON'T YOU WANNA BE AN EPIC FURY?
 - **\[CHECK\]**
-  - He wants to make a **DEAL**, but don't give him your **MONEY**! <!--"DEAL" and "MONEY" are in yellow-->
+  - He wants to make a **DEAL**, but don't give him your **CRYPTO**! <!--"DEAL" and "CRYPTO" are in yellow-->
 - **\[GIVE MONEY\]**
-  - (You felt your KROMER being absorbed...) (Wrong choice...?)
+  - (You felt your CRYPTO being absorbed...) (Wrong choice...?)
 - **Turn 1**
-  - THERE'S NOTHING WRONG WITH HAVING A NICE \[Splurge\] EVERY ONCE IN A WHILE
+  - THERE'S NOTHING WRONG WITH HAVING A NICE \[Election Fraud\] EVERY ONCE IN A WHILE
 - **Turn 2**
   - There's nothing wrong. There's NOTHING WRONG. THERE'S NOTHING WRONG.
 - **Subsequent Turns**
-  - Great ENEMY! SUSCRIBE NOW!
-  - Spamton mutters "1997."
+  - Great ELECTION! VOTE NOW!
+  - Trumpton mutters "2020."
   - Smells like KROMER.
-  - CONGRULATIONS YOU ARE THE 100th VISITOR!!! CLICK HERE TO \[Die\]
-  - Spamton flashes an award-losing smile.
+  - CONGRULATIONS YOU ARE THE 47th PRESIDENT!!! CLICK HERE TO \[Die\]
+  - Trumpton flashes an award-stealing smile.
 
 ## Normal
 
 ### Upon Entrance
 
 - HEY EVERY&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;!
-- IT'S ME, SPAMTON G. SPAMTON!
+- IT'S ME, DONALD J. DONALD!
 
 ### In shop
 
@@ -193,15 +193,15 @@
 
 ### Escape
 
-- DON'T FORGET TO \[Like and Subscribe\] FOR MORE \[Hyperlink Blocked\]!
+- DON'T FORGET TO \[Transparency Act\] FOR MORE \[File Redacted\]!
 
 ---
 
-- MANSION... BASEMENT! FIND IT!!
+- WHITE HOUSE... BASEMENT! FIND IT!!
 
 ---
 
-- YOU'RE LEAVING!? WHAT ABOUT MY DISK!?!?
+- YOU'RE LEAVING!? WHAT ABOUT MY HAT!?!?
 
 ### Buy
 
@@ -209,23 +209,23 @@
 
 ---
 
-- TRANSMIT \[x\] KROMER?
+- TRANSMIT \[x\] CRYPTO?
 
 ---
 
-- MONEY NO
+- CRYPTO NO
 
 ---
 
-- DELICIOUS KROMER
+- DELICIOUS CRYPTO
 
 ---
 
-- \[Storing up for the winter!\]
+- \[Sucking up for the midterms!\]
 
 ---
 
-- YOU HAVE TOO MUCH MONEY
+- YOU HAVE TOO MUCH AGE
 
 ---
 
@@ -237,62 +237,62 @@
 
 #### OUR DEAL
 
-- KRIS!!! YOU \[Little Sponge\]! I KNEW YOU'D COME HERE \[\[On A Saturday Night\]\]!
-- AFTER ALL, YOU WANNA BE A \[Big Shot\]! EAHAHAHAHAA!!
+- KRIS!!! YOU \[Blue-haired Liberal\]! I KNEW YOU'D COME HERE \[\[Live from New York, it's Saturday Night\]\]!
+- AFTER ALL, YOU WANNA BE A \[Epic Fury\]! EAHAHAHAHAA!!
 - BUT HOW? HOW CAN YOU BE?
-- LISTEN. IN THE \[Deep Abyss\] OF QUEEN'S \[Mansion\]
-- \[\[A Great Deal\]\] IS WAITING For \[\[A LimiTed Time Only!\]\] A HEAVEN-PIERCING \[\[Workout-Ready Body\]\]
-- \[\[Designed BY The Classics You've Come To Expect! (C)1997\]\]
-- KRIS THAT \[Little Nipper\] IS OUR \[One-way Ticket\] TO MAKE YOU \[Big\]. MAKE ME \[Big\].
-- BEFORE YOU KNOW IT WE WILL BE TAKING \[ A Ride around Town on Our Specil Cungadero\]
-- VACATIONING IN \[Burning acid\] WHILE YOU SOAK IN THE \[Hyperlink Blocked\].
-- BUT KRIS DON'T \[Breathe\] YET!! THE WAY IS LOCKED BY \[High Quality Encryption\]!!!
+- LISTEN. IN THE \[Situation\] OF SLEEPY JOE'S \[White House\]
+- \[\[A Great Deal\]\] IS WAITING For \[\[A LimiTed Time Only!\]\] A ELECTION-STEALING \[\[Tesla-Brand Body\]\]
+- \[\[Designed BY The Nazis You've Come To Expect! (C)2021\]\]
+- KRIS THAT \[Big Beautiful Bot\] IS OUR \[One-way Ticket\] TO MAKE YOU \[Epic\]. MAKE ME \[Epic\].
+- BEFORE YOU KNOW IT WE WILL BE TAKING \[ @grok is this true\]
+- VACATIONING IN \[Mar-a-Lago\] WHILE YOU SOAK IN THE \[File Redacted\].
+- BUT KRIS DON'T \[Breathe\] YET!! THE WAY IS LOCKED BY \[**CH**ina\]!!!
 - YOU WILL NEVER GET INSIDE.
-- WAIT KRIS LOOK!! HEAR THOSE \[Balloons\]??? YOU ARE \[1000th Customer\]!!.
-- AS A \[Commemorative Ring\] I WILL LET YOU BUY \[KeyGen\] FROM ME AT \[The Low Low Price Of\]
+- WAIT KRIS LOOK!! HEAR THOSE \[Balloons\]??? YOU ARE \[Carry the flame\]!!.
+- AS A \[Nobel Prize\] I WILL LET YOU BUY \[JanSix\] FROM ME AT \[The Low Low Price Of\]
 - WHAT DO YOU THINK!?!? IT'S SUCH A STEAL, I'M \[$!X$\]ING MYSELF!!!
 - TAKE THIS DEAL AND YOU WILL \[\[Die\]\]!! IT'S THAT GOOD!!!
-- \[BUY\] THE KEYGEN FROM ME, UNLOCK THE BASEMENT, AND GET THAT EmptyDisk!!!
+- \[BUY\] THE JANSIX FROM ME, UNLOCK THE BASEMENT, AND GET THAT BaseballCap!!!
 
 ---
 
-- KRIS!! BUY \[KeyGen\] FROM ME AND GO TO QUEEN'S MANSION'S \[Luxurious Basement Apartment\]!!
+- KRIS!! BUY \[JanSix\] FROM ME AND GO TO SLEEPY JOE'S WHIT HOUSE'S \[Luxurious Basement Shelter\]!!
 - WHAT!? GO MYSELF!? KRIS!!!!! NO!!!!! THE MEN INSIDE WOULD THE MEN INSIDE WOULD
 
 ---
 
-- KEYGEN
+- JANSIX
 
 #### ABOUT YOU
 
-- I USED TO BE NOTHING BUT THE E_MAIL GUY, NOW I'M THE \[\[It Burns! Ow! Stop! Help Me! It Burns!\]\] GUY!
-- \[\[Amazed at thi5 amazing transformation? You too can\]\] HAVE A \[\[Communion\]\] WITH \[\[Unintelligble Laughter\]\]
-- SOON I'LL EVEN SURPASS THAT DAMNED \[\[Clown Around Town!\]\]
-- BUT UNLIKE HIM I'M GONNA \[\[Shoot For the Sky!\]\] AND  GET ON THE PATH TO ...
-- \[\[The Big One\]\]
+- I USED TO BE NOTHING BUT THE CASINO GUY, NOW I'M THE \[\[Ah! No! Stop! Help Me! Don't Touch Me There!\]\] GUY!
+- \[\[Amazed at thi5 amazing transformation? You too can\]\] HAVE A \[\[1200% increase\]\] WITH \[\[Unintelligble Rambling\]\]
+- SOON I'LL EVEN SURPASS THAT DAMNED \[\[Commie Mamdani!\]\]
+- BUT UNLIKE HIM I'M GONNA \[\[Make America Great Again!\]\] AND  GET ON THE PATH TO ...
+- \[\[Dictatorship\]\]
 - I'LL GET SO. I'LL GET SO. I'LL GET SO. I'LL GET SO. I'LL GET SO. I'LL GET SO.
-- \[\[Hyperlink blocked.\]\]
+- \[\[File redacted.\]\]
 
 #### KNIGHT
 
-- SPEAKING OF \[\[Communion\]\]
-- KRIS, DID YOU KNOW THAT THE KNIGHT...
+- SPEAKING OF \[\[Communism\]\]
+- KRIS, DID YOU KNOW THAT EPSTEIN...
 - No, I'm sorry! I'm sorry! I didn't mean to --
-- TOO MANY EXCESS VACATION DAYS?? TAKE A GOD DAMN VACATION STRAIGHT TO HELL
+- TOO MANY EXCESS VACATION DAYS?? TAKE A GOD DAMN VACATION STRAIGHT TO THE ISLAND
 
 #### FRIENDS
 
 - ME? ... FRIENDS?
 - EAHAEHAEHAEHAEH!!! KRIS! YOU AND ME. ARE ALREADY \[Friend Request Accepted\]
-- WE DON'T NEED ANYONE ELSE!!! WE DON'T NEED \[\[Easels\]\] or \[\[CRTs\]\]!
-- WE DON'T NEED ANY \[\[Man, Woman, or Child\]\] \[\[At Half Price\]\]!!
-- WE DON'T NEED \[\[MIKE\]\]!!!
-- ... ... Mike...
-- KRIS!!! DON'T BELIEVE [[Anything You See On TV!]] THE MAN'S A CRIMINAL, I TELL YOU!! A CRIMINAL!!
+- WE DON'T NEED ANYONE ELSE!!! WE DON'T NEED \[\[Liberals\]\] or \[\[DEIs\]\]!
+- WE DON'T NEED ANY \[\[Black, Woman, or Gay\]\] \[\[At Half Price\]\]!!
+- WE DON'T NEED \[\[BUBBA\]\]!!!
+- ... ... Bubba...
+- KRIS!!! DON'T BELIEVE [[Anything You See In Those Emails!]] THE LADY'S A CRIMINAL, I TELL YOU!! A CRIMINAL!!
 
 #### FEAR
 
-- WHAT ARE YOU AFRAID OF??? ACCORDING TO \[\[Encyclopedia of\]\] \[\[Being Afraid\]\]
+- WHAT ARE YOU AFRAID OF??? ACCORDING TO \[\[Counting or not counting\]\] \[\[Gang Violence\]\]
 - THERE'S NOTHING TO FEAR EXCEPT
 - ...
 - ... can anyone hear me? Help...
@@ -305,60 +305,60 @@
 
 #### GIVE DISK
 
-- KRIS!!! YOU DID IT!! YOU \[\[Funky\]\] LITTLE \[\[Worm\]\]! YOU BROUGHT ME THE DISK!!
-- HOCHI MAMA!!!! I CAN FEEL THAT \[Smooth Taste\] ALREADY!!
+- KRIS!!! YOU DID IT!! YOU \[\[Quiet\]\] LITTLE \[\[Piggy\]\]! YOU BROUGHT ME THE HAT!!
+- HOCHI MAMA!!!! I CAN FEEL THAT \[Promised Land\] ALREADY!!
 - ... NOW KRIS. DON'T BE GREEDY. HAND OVER. THE DISK.
 - THEN WE WILL TRANSFER.
-- MY \[\[Hyperlink Blocked\]\].
+- MY \[\[File Redacted\]\].
 - THEN. KRIS. AFTER. THIS IS VERY, VERY IMPORTANT.
-- GO BACK. AND PUT. THE DISK. BACK. WHERE YOU GOT IT.
-- DO THAT... AND YOU HAVE MY \[Specil Guaranttee\] I WILL \[\[Pass My Savings Onto You!\]\]
-- EVERY \[Big\], EVERY \[Shot\], EVERY \[Hyperlink Blocked\], ALL YOURS, KRIS.
-- SO WHAT DO YOU SAY? BIG SHOT...
-- \[\[Warning! If you consent to the terms and agreements,\]\] \[\[OUR STORE is PERMANENTLY Closing Down!!\]\]
+- GO BACK. AND PUT. THE HAT. BACK. WHERE YOU GOT IT.
+- DO THAT... AND YOU HAVE MY \[Specil Guaranttee\] I WILL \[\[Dividend the Tariffs to you!\]\]
+- EVERY \[Epic\], EVERY \[Furry\], EVERY \[File Redacted\], ALL YOURS, KRIS.
+- SO WHAT DO YOU SAY? EPIC FURY...
+- \[\[Warning! If you consent to the terms and agreements,\]\] \[\[OUR ISLAND is PERMANENTLY Closing Down!!\]\]
   - **\[TRANSFER\]**
-    - FINALLY!!! I KNEW YOU WOULD \[\[Request Accepted\]\]
-    - KRIS!!! HERE I GO!!! BEGIN THE \[\[Transfer\]\]
+    - FINALLY!!! I KNEW YOU WOULD \[\[Sign the Bill\]\]
+    - KRIS!!! HERE I GO!!! BEGIN THE \[\[Diplomacy\]\]
   - **\[DO NOT\]**
-    - TURNING DOWN A BELOVED \[\[Stranger\]\]... THAT'S NOT VERY \[\[Big Shot\]\] OF YOU, KRIS.
+    - TURNING DOWN A BELOVED \[\[Predator\]\]... THAT'S NOT VERY \[\[Epic Fury\]\] OF YOU, KRIS.
 
 ## Snowgrave
 
 ### Dumpster
 
 - LOOKING FOR \[Irresistible Deals\] THAT WILL \[Blow Your Mind!?\]
-- WELL \[Shut Your Mouth\] BECAUSE YOU ARE \[A Weakling!\]
-- TRY A LITTLE \[Friday Night Work Out\]...
+- WELL \[Quiet Piggy\] BECAUSE YOU ARE \[A Democrat!\]
+- TRY A LITTLE \[Minnesota Mayhem\]...
 - THEN I'LL SHOW YOU MY
 - THEN I'LL SHOW YOU MY
 - 4 LEFT. <!--4 is the number of enemies left-->
 
 ---
 
-- GET STRONGER!
+- DEPORT ILLEGALS!
 - THEN I'LL SHOW YOU MY
 - THEN I'LL SHOW YOU MY
 - 4 LEFT. <!--4 is the number of enemies left-->
 
 ---
 
-- \[Angel\], \[Angel\]
-- ARE YOU LOOKING FOR THE \[Ring\] of \[Thorns\]?
+- \[Barbie\], \[Barbie\]
+- ARE YOU LOOKING FOR THE \[Vacuum\] of \[Chocolate\]?
   - **\[Yes\]**
-    - THat'll be 1997 KROMER.
+    - THat'll be 1776 KROMER.
       - **\[Yes\]**
-        - HERE'S YOUR \[Ring\]! CAREFUL, IT MIGHT \[Sting\]
+        - HERE'S YOUR \[Thing\]! CAREFUL, IT MIGHT \[Sting\]
         - EAHEAHEAH
-        - (You got the ThornRing.)
+        - (You got the Chocuum.)
       - **Not enough money**
         - \[Money\] NO
       - **Full inventory**
         - LET ME CHECK YOUR \[Pockets\]
         - WOW, NICE AND SPACIOUS!!
-        - PERFECT FOR \[City Livin'\]
+        - PERFECT FOR \[Deportin'\]
         - HOW CAN YOU \[Afford\] THIS!?!?!
-        - ... YET THERE'S NO ROOM FOR A \[Ring\]
-        - THERE'S A \[Boy\], BUT THERE'S NO ROOM FOR A \[Ring\]
+        - ... YET THERE'S NO ROOM FOR A \[Vacuum\]
+        - THERE'S A \[Lip Filler\], BUT THERE'S NO ROOM FOR A \[Vacuum\]
       - **\[No\]**
         - BUT IT WAS SUCH A GOOD YEAR.
   - **\[No\]**
@@ -366,8 +366,8 @@
 
 ---
 
-- DON'T WORRY! FOR OUR \[No Money Back Guaranttee\]
-- THIS IS \[One Purchase\] YOU WILL \[Regret\] FOR THE REST OF YOUR LIFE!
+- DON'T WORRY! FOR OUR \[No Dividend Guaranttee\]
+- THIS IS \[One Investment\] YOU WILL \[Insider trade\] FOR THE REST OF YOUR LIFE!
 
 ## Spamton NEO
 
@@ -375,11 +375,11 @@
 
 #### Pre-Battle
 
-- HOLY \[\[Cungadero\]\] DO I FEEL GOOD ...
+- HOLY \[\[Netanyahu\]\] DO I FEEL GOOD ...
 - HERE I AM!! KRIS!!
-- BIG
-- BIG,
-- \[\[BIGGER AND BETTER THAN EVER\]\]
+- EPIC
+- EPIC,
+- \[\[MORE TREMENDOUS THAN ANYONE ELSE\]\]
 - HA HA HA ... THIS POWER IS
 - FREEDOM.
 - I WON'T HAVE TO BE
@@ -388,7 +388,7 @@
 - ...
 - OR... so... I... thought.
 - WHAT ARE THESE STRINGS!?
-  - WHY AM I NOT \[BIG\] ENOUGH!?
+  - WHY AM I NOT \[EPIC\] ENOUGH!?
   - It's still DARK... SO DARK!
 - KRIS.
 - KRIS.
@@ -397,34 +397,34 @@
 - THAT'S RIGHT.
   - YOU.
   - I NEED YOU.
-- TO BE BIG.
+- TO BE EPIC.
   - WITH ME.
-- VERY&nbsp;&nbsp;&nbsp;&nbsp;VERY&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;BIG
-- SO BIG WE'LL STAND UP TALL AND SEE PAST THE DARK
+- VERY&nbsp;&nbsp;&nbsp;&nbsp;VERY&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;EPIC
+- SO EPIC WE'LL STAND UP TALL AND SEE PAST THE DARK
 - STAND UP WITH OUR HEADS IN THE CLOUDS AND LOOK INTO
-- H E A V E N
+- I S R A E L
 - I
   - JUST NEED
   - THAT LITTLE,
 - \[\[SOUL\]\]
   - Y O U HAVE
 - ***\[Susie\]*** Kris!
-- The hell was that weirdo!?
+- The hell was that creep!?
 - ***\[Ralsei\]*** Kris, we were worried about you, so...
-- ***\[Spamton\]*** KRIS!!! YOU HAVE \[Friends\]!?
-- WHY DON'T YOU TELL THEM ABOUT MY \[3 for One Specil\]!
-- TODAY, THE WHOLE FAMILY CAN TAKE A LITTLE \[Ride Around Town\]...
+- ***\[Trumptob\]*** KRIS!!! YOU HAVE \[Supporters\]!?
+- WHY DON'T YOU TELL THEM ABOUT MY \[Concepts of a plan\]!
+- TODAY, THE WHOLE FAMILY CAN TAKE A LITTLE \[Genital Mutilation\]...
 - \[Attention Customers! Clean up on Aisle 3!\]
 - SOMEONE LEFT \[There\] SOULS, \[Lyeing Around......\]
-- Kris!?!? WAS THAT A \[BIG SHOT\] JUST NOW!?
+- Kris!?!? WAS THAT A \[EPIC FURY\] JUST NOW!?
 - WOW!!!
-  - I'M SO \[Proud\] OF YOU, I COULD \[Killed\] YOU!
-- \[Heaven\], are you WATCHING?
+  - I'M SO \[Proud\] OF YOU, I COULD \[Bomb\] YOU!
+- \[Bibi\], are you WATCHING?
 - IT'S TIME TO MAKE A VERY \[Specil\] DEAL...
 
 #### Battle
 
-- KRIS! ISN'T THIS \[Body\] JUST \[Heaven\]LY!?
+- KRIS! ISN'T THIS \[Mecha\] JUST \[Hitler\]LY!?
 - 3X THE \[Fire\]POWER. 2X THE \[Water\]POWER. AND BEST OF ALL, FLYING \[Heads\]!
 
 ---
